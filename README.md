@@ -1,5 +1,5 @@
 # About me
-Genius, billionaire, philantroper, father of ten.
+Genius, billionaire, philantropist, father of ten.
 
 <a href="https://jesus.rip"><img src="https://raw.githubusercontent.com/realfraze/realfraze/main/my-dad-beats-me.svg" alt="help"/></a>
 
